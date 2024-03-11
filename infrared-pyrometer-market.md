@@ -53,7 +53,7 @@ Phone No: +1 214 613 5758
 Website: <https://www.metastatinsight.com/>
 
 -----
-![laptop](Aspose.Words.bd58f915-fa8b-4225-96a2-971098891acd.001.png)
+![laptop](Aspose.Words.0f6543f4-758e-4f56-8e94-13b2f6f036b4.001.png)
 
 -----
 
